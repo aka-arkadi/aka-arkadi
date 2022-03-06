@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @aka-arkadi
+- 👀 I’m interested in coding
